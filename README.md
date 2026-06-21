@@ -7,6 +7,7 @@
 
 I love nisaac ! !
 
-<img width="736" height="847" alt="46e975bcd6961ba7550afacc0abdfd59" src="https://github.com/user-attachments/assets/af6337d7-5ce5-4203-b6bf-3e627b73a5df" />
+<img width="736" height="736" alt="fa3d19715dffb64918ef62ffe540344e" src="https://github.com/user-attachments/assets/b05172f3-4ddf-4174-a4a2-d1a79f0965aa" />
+>
 
 Also follow my main if I'm cool, thanks for reading !!
